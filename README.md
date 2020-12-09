@@ -1,0 +1,2 @@
+# readme
+SELAM BEN EMİRHAN
